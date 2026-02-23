@@ -1,7 +1,6 @@
 ## Hello, I'm Brayan 🦖
 
 🧑🏻‍🎓 Systems Engineers at USM, Venezuela <br/>
-🕷️ My LinkedIn profile [LinkedIn](www.linkedin.com/in/brayan-martinez-56339517b) 
 
 
 ## 🌐 Socials:
